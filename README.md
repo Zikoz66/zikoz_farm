@@ -1,0 +1,6 @@
+# zikoz_farm
+Hello, today I share my system of farm the orange
+
+IT IS STRICTLY FORBIDDEN TO RENAME THIS RESOURCE
+
+IL EST STRICTEMENT INTERDIT DE RENOMMER CETTE RESSOURCE
